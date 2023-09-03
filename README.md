@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **kaarajw@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18OWD09S8v9AtrNEnun6rJ9xo60q98yRx/view](https://drive.google.com/file/d/18OWD09S8v9AtrNEnun6rJ9xo60q98yRx/view)
+- 📄 Know about my experiences https://drive.google.com/file/d/1S6xuSIkwY7CHmASNLAa1CHDbl3u3EQpY/view?usp=sharing
 
 - ⚡ Fun fact **I think I am creative**
 
