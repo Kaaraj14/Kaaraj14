@@ -8,7 +8,6 @@
 
 - 📄 Know about my experiences https://drive.google.com/file/d/1S6xuSIkwY7CHmASNLAa1CHDbl3u3EQpY/view?usp=sharing
 
-- ⚡ Fun fact **I think I am creative**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
