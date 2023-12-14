@@ -1,6 +1,6 @@
 <h3 align="center">I am an Aspiring Software Engineer from India.</h3>
 
-- 🔭 I’m currently working on **Library management system**
+- 🔭 I’m currently working on an Arduino iot project
 
 - 🌱 I’m currently learning **C++ , Data structures and algorithms , Frontend Web Development**
 
